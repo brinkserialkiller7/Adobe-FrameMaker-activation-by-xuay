@@ -1,0 +1,1 @@
+# Adobe-FrameMaker-activation-by-xuay
